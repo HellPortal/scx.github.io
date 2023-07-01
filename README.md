@@ -1,1 +1,1 @@
-# scx.github.io
+# seedcracker.xyz
